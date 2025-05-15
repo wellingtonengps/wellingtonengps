@@ -11,7 +11,7 @@
 ## 📫 Contato
 
 - Email: wellington.engps@gmail.com
-- LinkedIn: [linkedin.com/in/wellingtonpsilva](https://www.linkedin.com/in/wellingtonpsilva/)
+- LinkedIn: [linkedin.com/in/wellingtonengps](https://www.linkedin.com/in/wellingtonengps/)
 
 ## 🧩 Sobre mim
 
