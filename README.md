@@ -10,9 +10,8 @@
 
 ## 📫 Contato
 
-- Email: wellingtonpdsilva@gmail.com
+- Email: wellington.engps@gmail.com
 - LinkedIn: [linkedin.com/in/wellingtonpsilva](https://www.linkedin.com/in/wellingtonpsilva/)
-- GitHub: [github.com/wellingtonps](https://github.com/wellingtonps)
 
 ## 🧩 Sobre mim
 
