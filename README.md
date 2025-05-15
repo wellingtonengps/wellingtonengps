@@ -12,6 +12,7 @@
 
 - Email: wellington.engps@gmail.com
 - LinkedIn: [linkedin.com/in/wellingtonengps](https://www.linkedin.com/in/wellingtonengps/)
+- WhatsApp: (33) 99993-8459
 
 ## 🧩 Sobre mim
 
